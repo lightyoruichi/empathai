@@ -31,6 +31,6 @@ Each case study **dissects the emotional triggers these brands use** and **expla
 🔹 **Try EmpathAI:** [EmpathAI ChatGPT](https://chatgpt.com/g/g-67b5c315cab08191aa0e8b4b9bc4bbd8-empathai)  
 🔹 **Follow my insights:** [LinkedIn](https://www.linkedin.com/in/lightyoruichi/) | [Substack](https://substack.com/@lightyoruichi)  
 🔹 **Drop your email & phone for future updates:** [Tally Form](https://tally.so/r/mDZa1q)  
-🔹 **Buy this tool:** [Buy now](https://2931760141506.gumroad.com/l/empatha-sell-better)
+🔹 **Buy this tool:** [Buy now](https://2931760141506.gumroad.com/l/empathai-sell-better)
 
 🔥 **Let’s stop guessing and start selling smarter.**
